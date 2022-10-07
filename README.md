@@ -1,1 +1,0 @@
-# thetrip.github.io
